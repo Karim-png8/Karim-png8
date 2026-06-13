@@ -19,5 +19,5 @@ A passionate student and tech enthusiast focused on Network Security, Defensive 
 
 ## 🤝 Connect with me
 - 📧 Email: Karimkaeem9@gmail.com
-- 💼 LinkedIn: [Karim Sharif](https://www.linkedin.com/in/karim-sharif-673144406)
+- 💼 LinkedIn: www.linkedin.com/in/karim-kaeem-466995380
 -
